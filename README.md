@@ -1,7 +1,7 @@
 <p align="left">
   Hey 👋What's Up?
   <br>
-  <br>I'm Luke, a game developer based in Wales.
+  <br>I'm Nocere, a game developer based in Wales.
   <br>
   <br>I make whatever I can imagine.
   <br>
