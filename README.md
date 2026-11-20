@@ -13,7 +13,7 @@
   </li>
 
   <li>
-    I have 3 cats... kinda(they live in another country with my girlfriend but she's still mine ❤️)
+    I have 3 cats... kinda(they live in another country with my girlfriend but they're still mine ❤️)
   </li>
 
   <li>
